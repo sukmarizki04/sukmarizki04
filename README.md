@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 🎉 Stay Foolish dan Stay Hungry
 -->
 
-## I'm a Developer, and student!
+## I'm a Front and Develover
 Saya Merupakan Pengembang Web dan Tools yang saya digunakan Tercantum dibawah ini.
 Saya juga masih seorang mahasiswa di Universitas Malikussaleh 
 
