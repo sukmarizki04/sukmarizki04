@@ -2,10 +2,11 @@
 
 
 
-### Sukma Rizki👋
-### Ganteng dan Baik
-### Selamat Datang di github saya.
-### 
+### Welcome my Github 
+
+### Helllo Everyone👋
+###I'M Sukma Rizki jaya kusumo.
+### Sofware Develover Mobile
 
 
 
