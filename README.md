@@ -6,8 +6,8 @@
 
 ### Helllo Everyone👋
 ###I'M Sukma Rizki jaya kusumo.
-### Sofware Develover Mobile
-
+### Enthusiastic Mobile Developer
+##Study and keep study
 
 
 <br>
