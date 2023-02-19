@@ -5,7 +5,7 @@
 ### Welcome my Github 
 
 ### Helllo Everyone👋
-###I'M Sukma Rizki jaya kusumo.
+###I'M Sukma Rizki
 ### Enthusiastic Mobile Developer
 ##Study and keep study
 
